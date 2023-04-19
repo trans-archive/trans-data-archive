@@ -7,3 +7,7 @@
   - [上文中的圖片，assert目錄下的HRT-HK.jpeg](https://github.com/Linzh7/BigFileArchive1/blob/master/ThisIsMyDuty/HRT-HK.jpeg?raw=true)
 - [華典醋酸環丙孕酮的武漢製藥方溝通紀錄](https://web.archive.org/web/20230317183207/https://twitter.com/BikerDuality/status/1590294112615673856)
 - [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
+
+
+
+- [钱今凡：84岁后跨性别 “人生的灿烂期才刚开始”](https://web.archive.org/web/20230419201239/http%3A%2F%2Fwww.chinadaily.com.cn%2Fdfpd%2Fshehui%2F2012-06%2F20%2Fcontent_15515350.htm)
