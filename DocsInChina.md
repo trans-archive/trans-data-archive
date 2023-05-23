@@ -25,3 +25,13 @@
 - [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
 - [香港HRT處方指南 - Twitter](https://web.archive.org/web/20230322141854/https://mobile.twitter.com/christine_ctw/status/1638421527082459136)
   - [上文中的圖片，assert目錄下的HRT-HK.jpeg](https://raw.githubusercontent.com/Linzh7/TransDataArchive/main/images/HRT-HK.jpeg)
+
+
+
+
+
+
+## 文檔
+
+- [中国跨性别与性别多元人群的健康服务与精神卫生](http://archive.today/2023.05.23-153847/https://zhuanlan.zhihu.com/p/61255815)
+- [2022年关于跨性别者的社会态度调查报告](http://archive.today/2023.05.23-154048/https://www.163.com/dy/article/H3R35E0C0545G0TE.html)
