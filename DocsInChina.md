@@ -6,7 +6,7 @@
 
 - [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
 - [四川：毕业证书上网注册后信息将不能更改 - 四川省人民政府](https://web.archive.org/web/20230317194908/https%3A%2F%2Fwww.sc.gov.cn%2F10462%2F12772%2F2015%2F5%2F10%2F10335228.shtml)
-
+- [中國駐日本大阪領事館总領事稱跨性別者是“畸形”](http://archive.today/2023.06.15-112227/https://twitter.com/xuejianosaka/status/1668778036492374018), [backup](https://web.archive.org/web/20230617155629/https://twitter.com/xuejianosaka/status/1668778036492374018)
 
 
 ## 新聞報道
