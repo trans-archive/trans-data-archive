@@ -4,8 +4,8 @@
 
 ## 官方文檔
 
-- [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
-- [四川：毕业证书上网注册后信息将不能更改 - 四川省人民政府](https://web.archive.org/web/20230317194908/https%3A%2F%2Fwww.sc.gov.cn%2F10462%2F12772%2F2015%2F5%2F10%2F10335228.shtml)
+- [北京二中院：人民法院尊重和保护跨性别者的人格、尊严及正当权利，用人单位不得基于就业歧视的原因作出解除劳动合同决定](https://web.archive.org/web/20230401102618/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA), [backup](http://archive.today/2023.07.18-174622/https://mp.weixin.qq.com/s/jijEQOTpg0QVjXfHg6WfXA)
+- [四川：毕业证书上网注册后信息将不能更改 - 四川省人民政府](https://web.archive.org/web/20230317194908/https%3A%2F%2Fwww.sc.gov.cn%2F10462%2F12772%2F2015%2F5%2F10%2F10335228.shtml), [backup](http://archive.today/2023.07.18-174324/https://www.sc.gov.cn/10462/12772/2015/5/10/10335228.shtml)
 - [中國駐日本大阪領事館总領事稱跨性別者是“畸形”](http://archive.today/2023.06.15-112227/https://twitter.com/xuejianosaka/status/1668778036492374018), [backup](https://web.archive.org/web/20230617155629/https://twitter.com/xuejianosaka/status/1668778036492374018)
     - 後續，作者解釋稱：並非說跨性別者為畸形，而是一些行為。
 - [雌二醇片/雌二醇地屈孕酮片复合包装含有单方制剂雌二醇片，属于《清单》中禁止通过网络零售的品种 - 国家药监局综合司关于《药品网络销售禁止清单（第一版）》有关问题的复函](https://web.archive.org/web/20230710110339/https://www.nmpa.gov.cn/xxgk/fgwj/gzwj/gzwjyp/20230710110515153.html)
@@ -20,8 +20,8 @@
 
 ## 社群討論
 
-
-- [关于目前毕业后改证，学历不再可以修改的情况 - Douban](https://web.archive.org/web/20230325145930/https://www.douban.com/group/topic/280415861/)
+- [关于目前毕业后改证，学历不再可以修改的情况 - 知乎](http://archive.today/2023.07.18-174908/https://zhuanlan.zhihu.com/p/588947037)
+- [关于目前毕业后改证，学历不再可以修改的情况（与上相似） - Douban](https://web.archive.org/web/20230325145930/https://www.douban.com/group/topic/280415861/), [backup](http://archive.today/2023.07.18-174632/https://www.douban.com/group/topic/280415861/?_i=9702349Tkd3Iql,9702397UNPOU6b%23)
 - [中國跨性別現狀的反饋 - Twitter](https://web.archive.org/web/20230317204132/https%3A%2F%2Ftwitter.com%2FCrystal_WangSW%2Fstatus%2F1636575011854073856)
 - [華典醋酸環丙孕酮的武漢製藥方溝通紀錄 - Twitter](https://web.archive.org/web/20230317183207/https://twitter.com/BikerDuality/status/1590294112615673856)
 
