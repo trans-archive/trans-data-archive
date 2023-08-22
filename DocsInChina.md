@@ -20,6 +20,8 @@
 
 ## 社群討論
 
+
+- [2023年8月22日七夕节，和性别多元相关的主要微信公众号遭遇新一轮集体炸号](http://archive.today/2023.08.22-070027/https://twitter.com/Angel_involked/status/1693854541844983882), [Source](https://t.me/transacademicorg/778)
 - [关于目前毕业后改证，学历不再可以修改的情况 - 知乎](http://archive.today/2023.07.18-174908/https://zhuanlan.zhihu.com/p/588947037)
 - [关于目前毕业后改证，学历不再可以修改的情况（与上相似） - Douban](https://web.archive.org/web/20230325145930/https://www.douban.com/group/topic/280415861/), [backup](http://archive.today/2023.07.18-174632/https://www.douban.com/group/topic/280415861/?_i=9702349Tkd3Iql,9702397UNPOU6b%23)
 - [中國跨性別現狀的反饋 - Twitter](https://web.archive.org/web/20230317204132/https%3A%2F%2Ftwitter.com%2FCrystal_WangSW%2Fstatus%2F1636575011854073856)
@@ -40,11 +42,6 @@
 - [RLE状态下求职/就业的经验 - Twitter 魏淑淑淑芬芬芬](https://web.archive.org/web/20230608190645/https://twitter.com/Nevernessian/status/1666657437611606016), [backup](http://archive.today/2023.06.08-190625/https://twitter.com/Nevernessian/status/1666657437611606016)
 - 跨性別男性簡明醫療資源獲取步驟與要點 [如何成为一个（真正的）男人 - 汽水服務](https://web.archive.org/web/20230614063954/https://mp.weixin.qq.com/s/kXYGhZETaMkhuwAbH3s-jQ), [backup](http://archive.today/2023.06.14-063954/https://mp.weixin.qq.com/s/kXYGhZETaMkhuwAbH3s-jQ)
 - [性别友善卫生间地图上线啦！快来get使用攻略！ - 跨儿心理](https://web.archive.org/web/20230615141140/https://mp.weixin.qq.com/s/aDigyqkiqJQVr0x1-tGx9g), [backup](http://archive.today/2023.06.15-141144/https://mp.weixin.qq.com/s/aDigyqkiqJQVr0x1-tGx9g)
-
-
-
-
-## 文檔
 
 
 - [中国跨性别与性别多元人群的健康服务与精神卫生](http://archive.today/2023.05.23-153847/https://zhuanlan.zhihu.com/p/61255815)
