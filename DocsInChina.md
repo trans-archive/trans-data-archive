@@ -62,6 +62,7 @@
 
 #### 学术研究
 
+- [跨性别者性别认同的法律承认 中国相关法律和政策的评估报告 - 中华女子学院](https://github.com/Linzh7/TransDataArchive/blob/main/files/%E8%B7%A8%E6%80%A7%E5%88%AB%E8%80%85%E6%80%A7%E5%88%AB%E8%AE%A4%E5%90%8C%E7%9A%84%E6%B3%95%E5%BE%8B%E6%89%BF%E8%AE%A4-%E4%B8%AD%E5%9B%BD%E7%9B%B8%E5%85%B3%E6%B3%95%E5%BE%8B%E5%92%8C%E6%94%BF%E7%AD%96%E7%9A%84%E8%AF%84%E4%BC%B0%E6%8A%A5%E5%91%8A.pdf)
 - [天津市跨性别女性新型毒品使用现状与影响因素分析 - 龚卉](https://github.com/Linzh7/TransDataArchive/blob/main/files/%E5%A4%A9%E6%B4%A5%E5%B8%82%E8%B7%A8%E6%80%A7%E5%88%AB%E5%A5%B3%E6%80%A7%E6%96%B0%E5%9E%8B%E6%AF%92%E5%93%81%E4%BD%BF%E7%94%A8%E7%8E%B0%E7%8A%B6%E4%B8%8E%E5%BD%B1%E5%93%8D%E5%9B%A0%E7%B4%A0%E5%88%86%E6%9E%90_%E9%BE%9A%E5%8D%89.pdf)
 - [江苏省跨性别女性人群危险行征和HIV检测影响因素分析 - 肖文静](https://github.com/Linzh7/TransDataArchive/blob/main/files/%E6%B1%9F%E8%8B%8F%E7%9C%81%E8%B7%A8%E6%80%A7%E5%88%AB%E5%A5%B3%E6%80%A7%E4%BA%BA%E7%BE%A4%E5%8D%B1%E9%99%A9%E8%A1%8C_%E5%BE%81%E5%92%8CHIV%E6%A3%80%E6%B5%8B%E5%BD%B1%E5%93%8D%E5%9B%A0%E7%B4%A0%E5%88%86%E6%9E%90_%E8%82%96%E6%96%87%E9%9D%99.pdf)
 - [运用捕获-再捕获方法估计天津市跨性别女性人群规模 - 龚卉](https://github.com/Linzh7/TransDataArchive/blob/main/files/%E8%BF%90%E7%94%A8%E6%8D%95%E8%8E%B7_%E5%86%8D%E6%8D%95%E8%8E%B7%E6%96%B9%E6%B3%95%E4%BC%B0%E8%AE%A1%E5%A4%A9%E6%B4%A5%E5%B8%82%E8%B7%A8%E6%80%A7%E5%88%AB%E5%A5%B3%E6%80%A7%E4%BA%BA%E7%BE%A4%E8%A7%84%E6%A8%A1.pdf)
