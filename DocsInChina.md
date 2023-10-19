@@ -11,6 +11,7 @@
 - [雌二醇片/雌二醇地屈孕酮片复合包装含有单方制剂雌二醇片，属于《清单》中禁止通过网络零售的品种 - 国家药监局综合司关于《药品网络销售禁止清单（第一版）》有关问题的复函](https://web.archive.org/web/20230710110339/https://www.nmpa.gov.cn/xxgk/fgwj/gzwj/gzwjyp/20230710110515153.html)
 - [中华人民共和国跨性别相关法律法规变迁 - Project Trans](https://github.com/project-trans/legal-spec)
 
+
 ## 新聞報道
 - [钱今凡：84岁后跨性别 “人生的灿烂期才刚开始”](https://web.archive.org/web/20230419201239/http%3A%2F%2Fwww.chinadaily.com.cn%2Fdfpd%2Fshehui%2F2012-06%2F20%2Fcontent_15515350.htm)
 - [停运公告 - 北同文化AllForQueer](http://archive.today/2023.05.15-142658/https://mp.weixin.qq.com/s/5PZw5t3lqlIECS49wgmF2w), [backup](https://web.archive.org/web/20230515184551/https://mp.weixin.qq.com/s/5PZw5t3lqlIECS49wgmF2w)
@@ -18,8 +19,8 @@
 - [童戈：农民工中的男男性活动非常活跃 page 1](http://archive.today/2023.06.30-130153/http://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_0.shtml), [2](http://archive.today/2023.06.30-130146/https://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_1.shtml), [3](http://archive.today/2023.06.30-130327/https://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_2.shtml), [4](http://archive.today/2023.06.30-130327/https://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_3.shtml), [5](http://archive.today/2023.06.30-130327/https://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_4.shtml), [6](http://archive.today/2023.06.30-130327/https://phtv.ifeng.com/weishiquanbuwenzhang/detail_2009_01/02/1076681_5.shtml)
 - [“补佳乐(戊酸雌二醇片)”。据公开信息，大量服用此药也能产生致幻效果 - 法治日报法治经纬](http://archive.today/2023.07.16-055419/http://epaper.legaldaily.com.cn/fzrb/content/20230622/Articel04002GN.htm), [backup](https://web.archive.org/web/20230716054256/http://epaper.legaldaily.com.cn/fzrb/content/20230622/Articel04002GN.htm), [蚌埠检察](http://archive.today/2023.07.16-054904/https://zhuanlan.zhihu.com/p/638868425)
 
-## 社群討論
 
+## 社群討論
 
 - [2023年8月22日七夕节，和性别多元相关的主要微信公众号遭遇新一轮集体炸号](http://archive.today/2023.08.22-070027/https://twitter.com/Angel_involked/status/1693854541844983882), [Source](https://t.me/transacademicorg/778)
 - [关于目前毕业后改证，学历不再可以修改的情况 - 知乎](http://archive.today/2023.07.18-174908/https://zhuanlan.zhihu.com/p/588947037)
@@ -42,6 +43,10 @@
 - [RLE状态下求职/就业的经验 - Twitter 魏淑淑淑芬芬芬](https://web.archive.org/web/20230608190645/https://twitter.com/Nevernessian/status/1666657437611606016), [backup](http://archive.today/2023.06.08-190625/https://twitter.com/Nevernessian/status/1666657437611606016)
 - 跨性別男性簡明醫療資源獲取步驟與要點 [如何成为一个（真正的）男人 - 汽水服務](https://web.archive.org/web/20230614063954/https://mp.weixin.qq.com/s/kXYGhZETaMkhuwAbH3s-jQ), [backup](http://archive.today/2023.06.14-063954/https://mp.weixin.qq.com/s/kXYGhZETaMkhuwAbH3s-jQ)
 - [性别友善卫生间地图上线啦！快来get使用攻略！ - 跨儿心理](https://web.archive.org/web/20230615141140/https://mp.weixin.qq.com/s/aDigyqkiqJQVr0x1-tGx9g), [backup](http://archive.today/2023.06.15-141144/https://mp.weixin.qq.com/s/aDigyqkiqJQVr0x1-tGx9g)
+
+## 其他分享
+- [【翻译】跨性别女性宣言 -  网哲邻人部](https://web.archive.org/web/20231019071738/https://mp.weixin.qq.com/s?__biz=MzkwMjE5MTg2Ng==&mid=2247485042&idx=1&sn=a58d171639add87514d4bb4729b90408&chksm=c0a809e7f7df80f1fac1d2f441c1970035c371c2e1a8c711329a3a693bb1bf4b7a3b04dd866b&xtrack=1&scene=90&subscene=93&sessionid=1697697740&flutter_pos=4&clicktime=1697697760&enterid=1697697760&finder_biz_enter_id=4&ascene=56&fasttmpl_type=0&fasttmpl_fullversion=6905274-zh_CN-zip&fasttmpl_flag=0&realreporttime=1697697760181&devicetype=android-31&version=28002a53&nettype=ctnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&session_us=gh_e48692199c7f&countrycode=CN&exportkey=n_ChQIAhIQWxa6mtoEFMkR7XsrK5fmHhLrAQIE97dBBAEAAAAAAOtNFBcxUmYAAAAOpnltbLcz9gKNyK89dVj0FjqBceEhWKTvUlSx72xF56uvUnn2paotA%2BkPUuxovoZ%2F3ix8x%2FQGYztbOqnHof2vtjkcpH8%2Fdwts5EJRpZP5XGXUQ4X6RMnajCNBqZ%2Bi7ZRBwLS2QRUDjBAE73hEliUnpfm5xSYl5HHoe0L4r9W%2FtSU3AuVXz2QEefesqrIPc1l0M%2FkbLUGbCy172cxPVklXy%2BmTlGAIXxTyuIaDUpq8ePO4ot%2BdhVcOjf8ZAcODtgYZ41HctI4j%2FQYQIhcxB6Npk6qorbE%3D&pass_ticket=suxsmatuWGJH%2B8FAkjHU3gTHso0Geo8Il4cZde9YyIHH6rr3hIiHb2%2BSfHTUA4gJ&wx_header=3), [backup](http://archive.today/2023.10.19-071744/https://mp.weixin.qq.com/s?__biz=MzkwMjE5MTg2Ng==&mid=2247485042&idx=1&sn=a58d171639add87514d4bb4729b90408&chksm=c0a809e7f7df80f1fac1d2f441c1970035c371c2e1a8c711329a3a693bb1bf4b7a3b04dd866b&xtrack=1&scene=90&subscene=93&sessionid=1697697740&flutter_pos=4&clicktime=1697697760&enterid=1697697760&finder_biz_enter_id=4&ascene=56&fasttmpl_type=0&fasttmpl_fullversion=6905274-zh_CN-zip&fasttmpl_flag=0&realreporttime=1697697760181&devicetype=android-31&version=28002a53&nettype=ctnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&session_us=gh_e48692199c7f&countrycode=CN&exportkey=n_ChQIAhIQWxa6mtoEFMkR7XsrK5fmHhLrAQIE97dBBAEAAAAAAOtNFBcxUmYAAAAOpnltbLcz9gKNyK89dVj0FjqBceEhWKTvUlSx72xF56uvUnn2paotA%2BkPUuxovoZ/3ix8x/QGYztbOqnHof2vtjkcpH8/dwts5EJRpZP5XGXUQ4X6RMnajCNBqZ%2Bi7ZRBwLS2QRUDjBAE73hEliUnpfm5xSYl5HHoe0L4r9W/tSU3AuVXz2QEefesqrIPc1l0M/kbLUGbCy172cxPVklXy%2BmTlGAIXxTyuIaDUpq8ePO4ot%2BdhVcOjf8ZAcODtgYZ41HctI4j/QYQIhcxB6Npk6qorbE%3D&pass_ticket=suxsmatuWGJH%2B8FAkjHU3gTHso0Geo8Il4cZde9YyIHH6rr3hIiHb2%2BSfHTUA4gJ&wx_header=3)
+
 
 ## 跨性別文件留檔
 
