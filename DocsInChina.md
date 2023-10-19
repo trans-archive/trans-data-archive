@@ -34,7 +34,7 @@
 
 
 ## 資源分享
-- [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
+- [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog), [backup](http://archive.today/2020.10.01-073217/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
 - [香港HRT處方指南 - Twitter](https://web.archive.org/web/20230322141854/https://mobile.twitter.com/christine_ctw/status/1638421527082459136)
   - [上文中的圖片，assert目錄下的HRT-HK.jpeg](https://raw.githubusercontent.com/Linzh7/TransDataArchive/main/images/HRT-HK.jpeg)
 - [上海九院srs準備資料 - 2023.4.23](https://web.archive.org/web/20230423134827/https://twitter.com/kk46241589/status/1649960773442211841)
