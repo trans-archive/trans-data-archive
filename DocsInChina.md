@@ -57,7 +57,7 @@
 
 ### 文件
 
-此处收录的文件皆在本 repo 的 files 目录下备份。需要注意的是，学术研究所报告的结果不一定能很好地反应社群的真实状态；社群报告可能但也无法保证可以覆盖到更广泛的个体，但仍然也有欠缺。
+以下内容不作为全面备份，更多内容请到 [Google Drive](https://drive.google.com/drive/u/1/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2?ths=true) 获取。
 
 #### 社群报告
 
