@@ -1,0 +1,1 @@
+- [‘It’s difficult to survive’: China’s LGBTQ+ advocates​ face jail and forced confession](http://archive.today/2024.01.16-185315/https://www.theguardian.com/global-development/2024/jan/15/its-difficult-to-survive-chinas-lgbtq-advocates-face-jail-and-forced-confession)
