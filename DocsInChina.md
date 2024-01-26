@@ -61,7 +61,7 @@
 
 ### 文件
 
-以下内容不作为全面备份，更多内容请到 [Google Drive](https://drive.google.com/drive/u/1/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2?ths=true) 获取。
+以下内容不作为全面备份，更多内容请到 [Google Drive](https://drive.google.com/drive/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2) 获取。
 
 #### 社群报告
 
