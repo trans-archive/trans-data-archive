@@ -8,3 +8,4 @@
 - [跨性別女性被非法強制帶走，目的地為扭轉機構](), [En](http://archive.today/2023.11.23-080242/https://twitter.com/IseulDawn/status/1727510097981575447)
 - [中国媒体南方周末纵容性别歧视](http://archive.today/2023.11.25-181235/https://m.weibo.cn/status/4972047869418641)
 - [违背“公序良俗”后的一场当众羞辱 - 岭南酷儿中心](https://web.archive.org/web/20240125213348/https://mp.weixin.qq.com/s/5dLs-wFPmQ_VED_97pxsmA), [backup](https://archive.ph/JGvji#selection-265.0-268.0)
+- [跨性别者在医院遭受性侵](http://archive.today/2024.02.05-165920/https://twitter.com/BH2USU/status/1753772002870166012)
