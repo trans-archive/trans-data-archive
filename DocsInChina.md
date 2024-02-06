@@ -21,7 +21,7 @@
 - [逃离怪物、变态、不祥之物，一个“双性人”如何寻找自我？｜深度报道 - 北青深一度](http://archive.today/2023.11.27-181319/https://mp.weixin.qq.com/s/agrYeQgzV_asFhS2m-lNNA), [backup](https://web.archive.org/web/20231127172303/https://mp.weixin.qq.com/s/agrYeQgzV_asFhS2m-lNNA)
 - [跨性别女孩遭“性别扭转治疗”：被母亲送去注射电击 - 新浪新闻](http://archive.today/2024.01.19-185905/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html), [backup](https://web.archive.org/web/20240119185957/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html)
 - [囚禁、虐待、羞辱？请不要歧视这样的“女孩” - Sir电影/腾讯](http://archive.today/2024.01.19-191739/https://new.qq.com/rain/a/20200729A0FMTE00), [囚禁、虐待、羞辱？请不要歧视这样的“女孩”](https://web.archive.org/web/20240119191849/https://new.qq.com/rain/a/20200729A0FMTE00)
-
+- [‘They’re trying to kill us one by one’: CCP blocks hormone medication - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [‘If a Chinese official invites you to tea, don’t go’: the censorship of LGBTQIA+ citizens - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [Inside China’s LGBTQIA+ re-education camps: survivors claim shock treatment and beatings - crikey](https://web.archive.org/web/20230315023328/https://www.crikey.com.au/2023/03/13/china-gay-conversion-camps/)
 
 ## 社群討論
 
