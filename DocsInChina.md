@@ -31,7 +31,7 @@
 - [中國跨性別現狀的反饋 - Twitter](https://web.archive.org/web/20230317204132/https%3A%2F%2Ftwitter.com%2FCrystal_WangSW%2Fstatus%2F1636575011854073856)
 - [華典醋酸環丙孕酮的武漢製藥方溝通紀錄 - Twitter](https://web.archive.org/web/20230317183207/https://twitter.com/BikerDuality/status/1590294112615673856)
 - [职场人必看：中国首个跨性别平等就业权案背后的法律问题 - 橙雨伞](http://archive.today/2023.07.20-061825/https://www.huxiu.com/article/380270.html)
-
+- [中国大陆地区的跨性别女性群体所面临的生存危机 - 寒涟漪](http://archive.today/2024.02.21-184252/https://zhuanlan.zhihu.com/p/612094985?utm_psn=1743643123329126403)
 
 
 
