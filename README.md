@@ -4,6 +4,8 @@
 
 因而若是要留存資訊，便是要善用存檔功能。比如下面兩個是我常用的，[WebArchive](https://web.archive.org/) 與 [ArchiveToday](https://archive.today/)。將其存入書簽欄中，即可快速保存當前頁面。
 
+另，Twitter 現在無法被存檔上下文，即無法存檔 threads，可選的解決方案是使用 [nitter](https://github.com/zedeus/nitter/wiki/Instances) 等第三方前端獲取，並存檔其網址。
+
 `javascript:void(open('https://web.archive.org/save/'+location.href))` [^1]
 
 `javascript:void(open('https://archive.today/submit/?url='+encodeURIComponent(document.location)))` [^2]
