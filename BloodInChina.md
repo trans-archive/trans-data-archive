@@ -12,7 +12,7 @@
 - [跨性別者被帶走，疑似扭轉治療](http://archive.today/2024.02.07-121124/https://nitter.poast.org/zhanglanhao2007/status/1735694381846536195)
 - [在中国传媒业求生的跨性别女性：我2023年回国去《南方周末》当记者，让我补上了国内职场歧视这一课 - Sydney Lian](http://archive.today/2024.02.21-195048/https://matters.town/@dreizigredpd/527021-%E5%9C%A8%E4%B8%AD%E5%9B%BD%E4%BC%A0%E5%AA%92%E4%B8%9A%E6%B1%82%E7%94%9F%E7%9A%84%E8%B7%A8%E6%80%A7%E5%88%AB%E5%A5%B3%E6%80%A7-%E6%88%912023%E5%B9%B4%E5%9B%9E%E5%9B%BD%E5%8E%BB-%E5%8D%97%E6%96%B9%E5%91%A8%E6%9C%AB-%E5%BD%93%E8%AE%B0%E8%80%85-%E8%AE%A9%E6%88%91%E8%A1%A5%E4%B8%8A%E4%BA%86%E5%9B%BD%E5%86%85%E8%81%8C%E5%9C%BA%E6%AD%A7%E8%A7%86%E8%BF%99%E4%B8%80%E8%AF%BE-bafybeifyjpf7na57p43z47dkus6klkrjtk2qvliqgbjqgnm2zi2ezy424y), [backup](https://web.archive.org/web/20240221195040/https://matters.town/@dreizigredpd/527021-%E5%9C%A8%E4%B8%AD%E5%9B%BD%E4%BC%A0%E5%AA%92%E4%B8%9A%E6%B1%82%E7%94%9F%E7%9A%84%E8%B7%A8%E6%80%A7%E5%88%AB%E5%A5%B3%E6%80%A7-%E6%88%912023%E5%B9%B4%E5%9B%9E%E5%9B%BD%E5%8E%BB-%E5%8D%97%E6%96%B9%E5%91%A8%E6%9C%AB-%E5%BD%93%E8%AE%B0%E8%80%85-%E8%AE%A9%E6%88%91%E8%A1%A5%E4%B8%8A%E4%BA%86%E5%9B%BD%E5%86%85%E8%81%8C%E5%9C%BA%E6%AD%A7%E8%A7%86%E8%BF%99%E4%B8%80%E8%AF%BE-bafybeifyjpf7na57p43z47dkus6klkrjtk2qvliqgbjqgnm2zi2ezy424y)
 - [一位中國跨性別平權倡議者去年在香港無故失蹤，然後被香港政府無限期羈押 - 賴可/翕然](http://archive.today/2024.02.26-131015/https://nitter.esmailelbob.xyz/freelaike/status/1761803700899610787)
-
+  - [賴可（翕然）全球關注組在此作出嚴正呼籲](http://archive.today/2024.02.28-073716/https://twitter.com/FreeLaiKe/status/1762281460520665313)
 
 
 
