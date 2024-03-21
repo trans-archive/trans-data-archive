@@ -24,7 +24,7 @@
 - [‘They’re trying to kill us one by one’: CCP blocks hormone medication - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [‘If a Chinese official invites you to tea, don’t go’: the censorship of LGBTQIA+ citizens - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [Inside China’s LGBTQIA+ re-education camps: survivors claim shock treatment and beatings - crikey](https://web.archive.org/web/20230315023328/https://www.crikey.com.au/2023/03/13/china-gay-conversion-camps/)
 
 ## 社群討論
-
+- [一份献给跨儿们的攻略（2024）- 跨儿说TransTalks](http://archive.today/2024.03.19-063345/https://mp.weixin.qq.com/s/e7lh1ikGUuBd68_iw5XoFw)
 - [2023年8月22日七夕节，和性别多元相关的主要微信公众号遭遇新一轮集体炸号](http://archive.today/2023.08.22-070027/https://twitter.com/Angel_involked/status/1693854541844983882), [Source](https://t.me/transacademicorg/778)
 - [关于目前毕业后改证，学历不再可以修改的情况 - 知乎](http://archive.today/2023.07.18-174908/https://zhuanlan.zhihu.com/p/588947037)
 - [关于目前毕业后改证，学历不再可以修改的情况（与上相似） - Douban](https://web.archive.org/web/20230325145930/https://www.douban.com/group/topic/280415861/), [backup](http://archive.today/2023.07.18-174632/https://www.douban.com/group/topic/280415861/?_i=9702349Tkd3Iql,9702397UNPOU6b%23)
