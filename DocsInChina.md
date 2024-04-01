@@ -21,7 +21,6 @@
 - [逃离怪物、变态、不祥之物，一个“双性人”如何寻找自我？｜深度报道 - 北青深一度](http://archive.today/2023.11.27-181319/https://mp.weixin.qq.com/s/agrYeQgzV_asFhS2m-lNNA), [backup](https://web.archive.org/web/20231127172303/https://mp.weixin.qq.com/s/agrYeQgzV_asFhS2m-lNNA)
 - [跨性别女孩遭“性别扭转治疗”：被母亲送去注射电击 - 新浪新闻](http://archive.today/2024.01.19-185905/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html), [backup](https://web.archive.org/web/20240119185957/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html)
 - [囚禁、虐待、羞辱？请不要歧视这样的“女孩” - Sir电影/腾讯](http://archive.today/2024.01.19-191739/https://new.qq.com/rain/a/20200729A0FMTE00), [囚禁、虐待、羞辱？请不要歧视这样的“女孩”](https://web.archive.org/web/20240119191849/https://new.qq.com/rain/a/20200729A0FMTE00)
-- [‘They’re trying to kill us one by one’: CCP blocks hormone medication - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [‘If a Chinese official invites you to tea, don’t go’: the censorship of LGBTQIA+ citizens - crikey](https://web.archive.org/web/20230315093107/https://www.crikey.com.au/2023/03/13/transgender-people-china-crackdown/), [Inside China’s LGBTQIA+ re-education camps: survivors claim shock treatment and beatings - crikey](https://web.archive.org/web/20230315023328/https://www.crikey.com.au/2023/03/13/china-gay-conversion-camps/)
 - [一个不治病的门诊，与四百万厌恶自己身体的人 - 正面链接](http://archive.today/2024.03.31-054656/https://mp.weixin.qq.com/s/y_Ravch-kW-8_QIiq7KGww), [backup](https://web.archive.org/web/20240331092000/https://mp.weixin.qq.com/s/y_Ravch-kW-8_QIiq7KGww)
 
 ## 社群討論
@@ -60,6 +59,7 @@
 - [為了活下去，中國LGBTQ組織改名、商業化、接軌主流價值觀 - theinitium](https://web.archive.org/web/20240129220554/https://theinitium.com/article/20211108-mainland-lgbt-ngo), [backup](http://archive.today/2023.05.16-010553/https://theinitium.com/article/20211108-mainland-lgbt-ngo/)
 - [翻译 | 我是一个跨性别女性。我没有出柜。我仍在其中 - 不能指](http://archive.today/2024.02.01-143849/https://mp.weixin.qq.com/s/c93M4XJHFaxjIwMF6CN3fQ), [backup](https://web.archive.org/web/20240206163530/https://mp.weixin.qq.com/s/c93M4XJHFaxjIwMF6CN3fQ)
 - [【播客】6年之后，成为“合法女人”的她决定剪去长发｜对谈跨性别者 - 莓辣MAYLOVE](http://archive.today/2024.03.31-165157/https://mp.weixin.qq.com/s/a0lEbSiHXe5WNpu89Hw-wA), [backup](https://web.archive.org/web/20240331165334/https://mp.weixin.qq.com/s/a0lEbSiHXe5WNpu89Hw-wA)
+- [沈阳开了家性别友好酒吧，TwoChairz，二椅子，文雅点的称呼叫两把椅子，来指代所有不愿意被规训和束缚的伙伴们！ - Twitter@Nokta_gardisto](http://archive.today/2024.04.01-061646/https://twitter.com/Nokta_gardisto/status/1774675363718955425)
 
 ## 跨性別文件留檔
 
