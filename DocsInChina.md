@@ -22,7 +22,8 @@
 - [跨性别女孩遭“性别扭转治疗”：被母亲送去注射电击 - 新浪新闻](http://archive.today/2024.01.19-185905/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html), [backup](https://web.archive.org/web/20240119185957/https://news.sina.cn/sh/2020-07-22/detail-iivhvpwx6751147.d.html)
 - [囚禁、虐待、羞辱？请不要歧视这样的“女孩” - Sir电影/腾讯](http://archive.today/2024.01.19-191739/https://new.qq.com/rain/a/20200729A0FMTE00), [囚禁、虐待、羞辱？请不要歧视这样的“女孩”](https://web.archive.org/web/20240119191849/https://new.qq.com/rain/a/20200729A0FMTE00)
 - [一个不治病的门诊，与四百万厌恶自己身体的人 - 正面链接](http://archive.today/2024.03.31-054656/https://mp.weixin.qq.com/s/y_Ravch-kW-8_QIiq7KGww), [backup](https://web.archive.org/web/20240331092000/https://mp.weixin.qq.com/s/y_Ravch-kW-8_QIiq7KGww)
-
+- [变性手术医生的“心”与“术” - 北京青年报](http://archive.today/2024.04.02-165614/https://www.chinanews.com.cn/m/gn/2017/02-13/8148021.shtml), [backup](https://web.archive.org/web/20240402163637/https://www.chinanews.com.cn/m/gn/2017/02-13/8148021.shtml)
+  
 ## 社群討論
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
 - [一份献给跨儿们的攻略（2024）- 跨儿说TransTalks](http://archive.today/2024.03.19-063345/https://mp.weixin.qq.com/s/e7lh1ikGUuBd68_iw5XoFw)
