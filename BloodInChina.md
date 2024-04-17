@@ -15,6 +15,6 @@
   - [賴可（翕然）全球關注組在此作出嚴正呼籲](http://archive.today/2024.02.28-073716/https://twitter.com/FreeLaiKe/status/1762281460520665313)
   - 當事人疑似已被遣返至中國，
 - [跨性別權益促進者在當前政治環境下過勞去世 - Twitter@hu_qin_](http://archive.today/2024.04.02-173242/https://twitter.com/hu_qin_/status/1747555607870111995)
-
+- [一位社群活動者以妨害藥品管理罪被起訴](http://archive.today/2024.04.17-154525/https://nitter.poast.org/XUEQIUxka/status/1780517758918418891)
 
 
