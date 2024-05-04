@@ -37,7 +37,7 @@
 - [中国大陆地区的跨性别女性群体所面临的生存危机 - 寒涟漪](http://archive.today/2024.02.21-184252/https://zhuanlan.zhihu.com/p/612094985?utm_psn=1743643123329126403)
 - [【特别推出】中文跨性别友善语言指南（2024年） - 性别梦](http://archive.today/2024.03.30-091503/https://mp.weixin.qq.com/s/t3VAdeW97kzYqQdXgVdfsQ), [backup](https://web.archive.org/web/20240402153752/https://mp.weixin.qq.com/s/t3VAdeW97kzYqQdXgVdfsQ)
 - [攻略：如何在线下药店优雅地购买补佳乐](http://archive.today/2024.04.13-215205/https://haruhuai.me/index.php/archives/23/), [backup](https://web.archive.org/web/20240413215201/https://haruhuai.me/index.php/archives/23/)
-
+- [一篇絮絮叨叨的跨性别出柜指南 - philokimia](http://archive.today/2024.05.04-160941/https://www.douban.com/note/746000647/?_i=4838966PF5KJTG,4838990SqQWCxx)
 
 ## 資源分享
 - [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog), [backup](http://archive.today/2020.10.01-073217/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
