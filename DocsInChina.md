@@ -54,7 +54,7 @@
 - [危机（自杀）干预方法参考（2023年10月22日已更新） - 寒涟漪](http://archive.today/2024.01.24-092537/https://zhuanlan.zhihu.com/p/422051124)
 - [全国“友同”“恐同”医疗机构名单——这个时代的绿皮书 - 無名喜舍](http://archive.today/2024.01.29-072343/https://mp.weixin.qq.com/s/T7DRXkJyCZLg7Cj6tGmFUw), [backup](https://web.archive.org/web/20240129072448/https://mp.weixin.qq.com/s/T7DRXkJyCZLg7Cj6tGmFUw)
 - 2018 广泛解答跨性别者常见法律问题 [跨性别护身符 - 跨性别在线](https://archive.ph/2024.02.05-174114/https://docs.transonline.org.cn/hushenfu/), [backup](https://web.archive.org/web/20240205174126/https://docs.transonline.org.cn/hushenfu)
-
+- [律师手记 | 学历证明上的性别竟然能即“男”又“女”？ - 刘明珂 睿博律师团队](http://archive.today/2024.06.01-101153/https://mp.weixin.qq.com/s/El5NwNfpbnakdCZqZjO3hw), [backup](https://web.archive.org/web/20240601101151/https://mp.weixin.qq.com/s/El5NwNfpbnakdCZqZjO3hw)
 
 
 ## 其他分享
