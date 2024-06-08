@@ -40,6 +40,7 @@
 - [攻略：如何在线下药店优雅地购买补佳乐](http://archive.today/2024.04.13-215205/https://haruhuai.me/index.php/archives/23/), [backup](https://web.archive.org/web/20240413215201/https://haruhuai.me/index.php/archives/23/)
 - [一篇絮絮叨叨的跨性别出柜指南 - philokimia](http://archive.today/2024.05.04-160941/https://www.douban.com/note/746000647/?_i=4838966PF5KJTG,4838990SqQWCxx)
 - [中国扭转机构的发展...到现在已经接近四百人... - Twitter](https://archive.ph/2024.05.13-140058/https://nitter.poast.org/kuromi57i/status/1788933468132618586)
+- [写给跨性别友好的医生/医学生 - 白雨霏 跨儿说TransTalks](http://archive.today/2024.06.08-083014/https://mp.weixin.qq.com/s/bHvM4hlfaL4Nbl53aT5J5A)
 
 ## 資源分享
 - [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog), [backup](http://archive.today/2020.10.01-073217/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
