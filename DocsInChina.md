@@ -43,6 +43,7 @@
 - [写给跨性别友好的医生/医学生 - 白雨霏 跨儿说TransTalks](http://archive.today/2024.06.08-083014/https://mp.weixin.qq.com/s/bHvM4hlfaL4Nbl53aT5J5A)
 - [考完了？《残障准大学生超强攻略》看起来先~ - 我们是少数派 少数派说](http://archive.today/2024.06.08-083055/https://mp.weixin.qq.com/s/k1ikapqiAbXjIQJ_xR8ePw)
 - 跨性别社群工作者发表六四纪念演讲遭仇跨民运人士言语攻击骚扰 - X@sauricat [Part1](http://archive.today/2024.06.10-093423/https://x.com/sauricat/status/1799959799079035377), [Part2](http://archive.today/2024.06.10-093432/https://x.com/sauricat/status/1799959967572570432)
+- [跨性别者非法监禁报案派出所和稀泥推迟签发报案回执 - X@DarkEye495](http://archive.today/2024.06.26-130439/https://xcancel.com/DarkEye495/status/1805257418131292574)
 
 ## 資源分享
 - [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog), [backup](http://archive.today/2020.10.01-073217/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
