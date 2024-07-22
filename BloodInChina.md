@@ -18,4 +18,6 @@
 - [一位社群活動者以妨害藥品管理罪被起訴](http://archive.today/2024.04.17-154525/https://nitter.poast.org/XUEQIUxka/status/1780517758918418891)
   - 据知情人士透露，其住宿与饮食条件等仅为一般标准集体关押水平。
 - [北京以精神卫生保健院为名的收容制度](http://archive.today/2024.06.10-140701/https://xcancel.com/mngdng156817346/status/1799490869604864146)
-
+- [合肥mtf亚明疑似被送扭转治疗](http://archive.today/2024.07.22-205757/https://xcancel.com/Michelle_Z2023/status/1812171272941441496)
+  - [其母故意伤害的控告信与资料整理后文件袋的照片](http://archive.today/2024.07.22-210144/https://xcancel.com/yaming00742313/status/1815292463851954195)
+  - [其轻伤诊断证明](http://archive.today/2024.07.22-210240/https://xcancel.com/yaming00742313/status/1814263193755349087)
