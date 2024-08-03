@@ -25,6 +25,7 @@
 - [变性手术医生的“心”与“术” - 北京青年报](http://archive.today/2024.04.02-165614/https://www.chinanews.com.cn/m/gn/2017/02-13/8148021.shtml), [backup](https://web.archive.org/web/20240402163637/https://www.chinanews.com.cn/m/gn/2017/02-13/8148021.shtml)
 - [跨性别人群生存困境调查：多数人有遭受校园暴力经历 - CCTV](http://archive.today/2024.04.28-165235/https://news.cctv.com/2020/02/22/ARTIJ5mYNQzX05v1IZiDuRoN200222.shtml), [backup](https://web.archive.org/web/20240428165227/https://news.cctv.com/2020/02/22/ARTIJ5mYNQzX05v1IZiDuRoN200222.shtml)
 - [当一位母亲知道孩子是跨性别后 - 林林 罗方丹 真实故事计划Pro](http://archive.today/2024.06.02-075452/https://mp.weixin.qq.com/s/BmhtwMfYL5Yjx_HEykx9WA), [backup](https://chinadigitaltimes.net/chinese/708436.html)
+- [港狱虹援：铁窗内外的跨儿行动者 莽莽@夏巢川](http://archive.is/2024.08.03-081135/https://read.mangmang.run/p/b36), [backup](https://web.archive.org/web/20240803081116/https://read.mangmang.run/p/b36)
 
 ## 社群討論
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
