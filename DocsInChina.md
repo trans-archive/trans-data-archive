@@ -68,6 +68,7 @@
 - [翻译 | 我是一个跨性别女性。我没有出柜。我仍在其中 - 不能指](http://archive.today/2024.02.01-143849/https://mp.weixin.qq.com/s/c93M4XJHFaxjIwMF6CN3fQ), [backup](https://web.archive.org/web/20240206163530/https://mp.weixin.qq.com/s/c93M4XJHFaxjIwMF6CN3fQ)
 - [【播客】6年之后，成为“合法女人”的她决定剪去长发｜对谈跨性别者 - 莓辣MAYLOVE](http://archive.today/2024.03.31-165157/https://mp.weixin.qq.com/s/a0lEbSiHXe5WNpu89Hw-wA), [backup](https://web.archive.org/web/20240331165334/https://mp.weixin.qq.com/s/a0lEbSiHXe5WNpu89Hw-wA)
 - [沈阳开了家性别友好酒吧，TwoChairz，二椅子，文雅点的称呼叫两把椅子，来指代所有不愿意被规训和束缚的伙伴们！ - Twitter@Nokta_gardisto](http://archive.today/2024.04.01-061646/https://twitter.com/Nokta_gardisto/status/1774675363718955425)
+- [性别不适用—《我，不适应》书评 - Utopia编辑部@Basisstation](http://archive.is/2024.08.06-194042/https://mp.weixin.qq.com/s/FGC8vrNxhCw2KdvWc8IWJg), [backup](https://web.archive.org/web/20240806194044/https://mp.weixin.qq.com/s/FGC8vrNxhCw2KdvWc8IWJg)
 
 ## 跨性別文件留檔
 
