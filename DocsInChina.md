@@ -26,6 +26,10 @@
 - [跨性别人群生存困境调查：多数人有遭受校园暴力经历 - CCTV](http://archive.today/2024.04.28-165235/https://news.cctv.com/2020/02/22/ARTIJ5mYNQzX05v1IZiDuRoN200222.shtml), [backup](https://web.archive.org/web/20240428165227/https://news.cctv.com/2020/02/22/ARTIJ5mYNQzX05v1IZiDuRoN200222.shtml)
 - [当一位母亲知道孩子是跨性别后 - 林林 罗方丹 真实故事计划Pro](http://archive.today/2024.06.02-075452/https://mp.weixin.qq.com/s/BmhtwMfYL5Yjx_HEykx9WA), [backup](https://chinadigitaltimes.net/chinese/708436.html)
 - [港狱虹援：铁窗内外的跨儿行动者 莽莽@夏巢川](http://archive.is/2024.08.03-081135/https://read.mangmang.run/p/b36), [backup](https://web.archive.org/web/20240803081116/https://read.mangmang.run/p/b36)
+- [被父母送去“矫治”的孩子：喝厕所的生水，时常被打骂 - 凹凸镜DOC©](http://archive.today/2024.08.15-185028/https://www.huxiu.com/article/371683.html?f=rss), [backup](https://web.archive.org/web/20240815185138/https://www.huxiu.com/article/371683.html?f=rss)
+- [19岁跨性别者的三次“逃亡” - 澎湃新闻@明鹊 实习生 何沛芸 梅陈园](http://archive.today/2024.02.03-175145/https://www.thepaper.cn/newsDetail_forward_8043273)
+- [跨性別者被送進精神病院"電療"後 向醫院索賠8萬 - 红星新闻](http://archive.today/2024.08.15-185144/https://zh.wenxuecity.com/news/2024/08/14/125724389.html)
+    - 原文及转载已被广泛删除，因而此文为繁体中文版本
 
 ## 社群討論
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
