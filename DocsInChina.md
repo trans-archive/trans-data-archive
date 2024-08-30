@@ -31,6 +31,7 @@
 - [跨性別者被送進精神病院"電療"後 向醫院索賠8萬 - 红星新闻](http://archive.today/2024.08.15-185144/https://zh.wenxuecity.com/news/2024/08/14/125724389.html)
     - 原文及转载已被广泛删除，因而此文为繁体中文版本
 - [同性恋者起诉心理咨询中心 称治疗性向时遭电击 - 京华时报](http://archive.today/2024.08.27-220302/https://www.chinanews.com.cn/fz/2014/08-02/6451953.shtml), [backup](https://web.archive.org/web/20240827220307/https://www.chinanews.com.cn/fz/2014/08-02/6451953.shtml)
+- [被殴打、遭虐待，曝光特训学校的暗面 - 泽敏 晴朗 圣琦 <南风窗>](http://archive.today/2024.08.30-154450/https://mp.weixin.qq.com/s/vtG9wZ3K2nKnfZze8zoudg), [backup](https://web.archive.org/web/20240830162805/https://mp.weixin.qq.com/s/vtG9wZ3K2nKnfZze8zoudg)
 
 ## 社群討論
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
