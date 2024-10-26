@@ -1,0 +1,18 @@
+# 2000 年前后记录
+## 新闻报道
+- [变性女子遭保安袭胸 对方称其着装怪异蓄意闹事 - 新京报](http://archive.today/2024.10.26-184840/https://news.sohu.com/20060810/n244715469.shtml)
+- [准变性人自述：我在歧视中做女人梦](http://archive.today/2024.10.26-184939/https://news.sohu.com/20060409/n242709951.shtml)
+- [变性人隆胸后被母亲拒之门外(图) - 北京晚报](http://archive.today/2024.10.26-184847/https://news.sohu.com/20060807/n244664036.shtml)
+- [变性人为隐私权告状 曾梦想当中国第一美女(图)](http://archive.today/2024.10.26-185004/https://news.sohu.com/20070327/n248990834.shtml)
+- [时装设计师隆胸要变女人 是6岁小女孩父亲(图)](http://archive.today/2024.10.26-184929/https://news.sohu.com/20051215/n240984657.shtml)
+- [两变性人被疑并非恋人 两人可能为医院代言(图) - 金羊网-新快报](http://archive.today/2024.10.26-184955/https://news.sina.cn/sa/2006-06-28/detail-ikftssap2652020.d.html)
+- [37岁湘男“搏命”求变性 将不计较手术后果(图)](http://archive.today/2024.10.26-185008/https://news.sina.com.cn/c/2005-05-09/18515840711s.shtml)
+- [男子隆胸变身女人讲述反串人生(组图) - 金羊网-新快报](http://archive.today/2024.10.26-185112/https://news.sina.cn/sa/2005-12-15/detail-ikknscsi9307294.d.html)
+- [医院代言合约要求红颜记熟资料 - 金羊网-新快报](http://archive.today/2024.10.26-185019/https://news.sohu.com/20060628/n243984326.shtml)
+- [变性人术后启用新名 称“做女人的感觉只是疼”](http://archive.today/2024.10.26-185017/https://news.sohu.com/20060608/n243629656.shtml)
+- [小伙手术7小时变性成功 3个月后可过性生活(图)](http://archive.today/2024.10.26-185030/https://news.sohu.com/20060607/n243596484.shtml)
+- [变性人想二次变性后续：红颜可能未做变性手术](http://archive.today/2024.10.26-185025/https://news.sohu.com/20060628/n243984274.shtml)
+- [变性人姓名被写入图书 起诉讨隐私权索赔124万 - 新京报](http://archive.today/2024.10.26-185029/https://news.sohu.com/20061231/n247366773.shtml)
+- [变性人报名世姐大赛 五六十个男人向其示爱(图)](http://archive.today/2024.10.26-185047/https://news.sohu.com/20060529/n243459620.shtml)
+- [变性男子报名选美大赛 称欲做世界第一美女(图) - 新京报](http://archive.today/2024.10.26-185059/https://news.sohu.com/20060530/n243464611.shtml)
+- [准变性人高婷婷被刑拘 曾报名世界小姐大赛被拒](http://archive.today/2024.10.26-185103/https://news.sohu.com/20060612/n243676989.shtml)
