@@ -16,3 +16,19 @@
 - [变性人报名世姐大赛 五六十个男人向其示爱(图)](http://archive.today/2024.10.26-185047/https://news.sohu.com/20060529/n243459620.shtml)
 - [变性男子报名选美大赛 称欲做世界第一美女(图) - 新京报](http://archive.today/2024.10.26-185059/https://news.sohu.com/20060530/n243464611.shtml)
 - [准变性人高婷婷被刑拘 曾报名世界小姐大赛被拒](http://archive.today/2024.10.26-185103/https://news.sohu.com/20060612/n243676989.shtml)
+- [“准变性人”高婷婷告出版社败诉 法院门口被抓(图)](http://archive.today/2024.10.26-190021/https://news.sohu.com/20070416/n249474302.shtml)
+- [男子欲变性遭父亲以死相逼 - 济南时报](http://archive.today/2024.10.26-190028/https://news.ifeng.com/society/2/200905/0517_344_1160994.shtml)
+- [Ayutthaya: “泰国变性人更愿意将自己定义为女性” - 来源：新快报](http://archive.today/2024.10.26-190031/https://news.ifeng.com/a/20140903/41837391_0.shtml)
+- [变性女寒冰冰：手术刀不能解决所有问题 -新世纪周刊](http://archive.today/2024.10.26-190035/https://news.ifeng.com/society/5/200908/0828_2579_1324706_4.shtml)
+- [“孙静雅们”卖淫身价为什么那么高？ - 凤凰知道](https://archive.ph/6M8cV#selection-215.0-237.6)
+- [跨性别群体调查：孙静雅和她背后隐秘的变性“外围女”们 - 澎湃新闻∙一号专案](http://archive.today/2024.10.26-190049/https://www.thepaper.cn/newsDetail_forward_1412430)
+- [海天盛筵事件女主角原是男人身 揭秘变性经历 - 西宁晚报](http://archive.today/2024.10.26-190053/https://www.chinanews.com.cn/m/yl/2015/10-13/7565957.shtml)
+- [“外围女”孙静雅涉卖淫被抓 模特“接活”仍活跃 - 大洋网](http://archive.today/2024.10.26-190202/https://society.huanqiu.com/article/9CaKrnJQuqX)
+- [一念成祸 - 新安晚报](http://archive.today/2024.10.26-190103/https://news.sina.cn/2015-10-12/detail-ifxiqtqy0892614.d.html)
+- [揭秘孙静雅和变性外围女们 每次价格1万5](http://archive.today/2024.10.26-190107/https://slide.news.sina.com.cn/s/slide_1_2841_93259.html%23p=1)
+- [上海52岁男子做变性手术成女人 盼按女性身份退休 - 凤凰网资讯](http://archive.today/2024.10.26-190121/https://news.ifeng.com/c/7fb6q05pZiu)
+- [变性3年后，刘婷想好好谈一次恋爱 | 当围观散去 · 活着 - 谷雨实验室-腾讯新闻](http://archive.today/2024.10.26-190122/https://mp.weixin.qq.com/s?__biz=MzU2MDEwMTIwMg==&mid=2247588109&idx=1&sn=cbf4f207494bba9fd6fc9b31aa3a4fcf&source=41%23wechat_redirect)
+
+
+## 社群讨论
+- [一场关于变性的对话(一)(对话人:李平-方刚)](http://archive.today/2024.10.26-202017/https://blog.sina.com.cn/s/blog_467a5c960100003w.html), [（二）](http://archive.today/2024.10.26-202017/https://blog.sina.com.cn/s/blog_467a5c960100003w.html)
