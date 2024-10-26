@@ -34,6 +34,13 @@
 - [被殴打、遭虐待，曝光特训学校的暗面 - 泽敏 晴朗 圣琦 <南风窗>](http://archive.today/2024.08.30-154450/https://mp.weixin.qq.com/s/vtG9wZ3K2nKnfZze8zoudg), [backup](https://web.archive.org/web/20240830162805/https://mp.weixin.qq.com/s/vtG9wZ3K2nKnfZze8zoudg)
 - [逃离特训学校后，少年们开始“复仇” - 小昼 极昼工作室](http://archive.today/2024.09.15-114017/https://www.thepaper.cn/newsDetail_forward_28652873), [backup](https://web.archive.org/web/20240915124928/https://www.thepaper.cn/newsDetail_forward_28652873)
 - [入学五天后，他们纵身一跳 - 财新](https://chinadigitaltimes.net/chinese/712008.html), [backup](https://web.archive.org/web/20241007222139/https://www.caixin.com/2024-10-07/102242529.html)
+- [同居“女友”是男人 变性再遭拒小伙欲寻死 - 齐鲁晚报](http://archive.today/2024.10.26-183859/https://news.ifeng.com/society/1/200905/0525_343_1173798.shtml)
+- [变性人法律地位渐趋明确 阴阳人社会角色仍尴尬 - 21世纪经济报道](http://archive.today/2024.10.26-183903/https://news.ifeng.com/society/5/200911/1125_2579_1449691.shtml)
+- [妈妈离婚只要女儿 儿子欲做变性手术 - 四川新闻网-成都晚报](http://archive.today/2024.10.26-183923/https://news.ifeng.com/society/3/201001/0126_345_1525240.shtml)
+- [图片故事：直击沈阳变性人手术全过程 - 凤凰网](http://archive.today/2024.10.26-183925/https://news.ifeng.com/photo/200612/1213_24_47782.shtml)
+- [吃激素、隆胸、穿女装 粤84岁书法家欲变性 - 海峡都市报](http://archive.today/2024.10.26-183927/https://news.ifeng.com/c/7fcPpTORTiV)
+- [南方日报：关注变性人的社会生存状态 - 南方日报](http://archive.today/2024.10.26-183807/https://tech.sina.com.cn/d/2005-12-22/1728800222.shtml)
+- 
 
 ## 社群討論
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
@@ -89,4 +96,8 @@
 
 ### 文件
 
-内容已全面迁徙到网路硬盘中，请到 [Google Drive](https://drive.google.com/drive/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2) 获取。
+- [变性人手记 叙述变性世界隐秘情感 桂林:漓江出版社, 1999 凡一平著](https://zh.annas-archive.org/md5/79c1d042d61d2a8d99848f9d62d1cd20)
+- [蝶变 一个变性丽人的心灵纪实 呼和浩特:内蒙古人民出版社, 1998 隋易著](https://zh.annas-archive.org/md5/6275e603764a13b2c89883e8e2d4ab8c)
+- [变性者的隐私 长沙:湖南文艺出版社, 1988 (日)夏树静子著;刘金鸿,丁涛译](https://zh.annas-archive.org/md5/61c613304975e4ee75d51099bf20dffb)
+
+未在 annas-archive 存档的内容已全面迁徙到网路硬盘中，请到 [Google Drive](https://drive.google.com/drive/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2) 获取。
