@@ -43,6 +43,7 @@
 - 
 
 ## 社群討論
+- [当跨性别医生面临攻击:医闹者目的是什么？ - 岭南酷儿Center](http://archive.today/2024.11.29-231132/https://mp.weixin.qq.com/s/VU0vxjICZVbL7p7VSyW0sA)
 - [跨性别序列治疗的现状与未来：专访潘柏林医生（上）](http://archive.today/2024.03.23-131542/https://mp.weixin.qq.com/s/T-rC0lZkfYJFOzAsz_V-xA), [（中）](http://archive.today/2024.03.23-131725/https://mp.weixin.qq.com/s/UgWfoEWmyP8IFSE-9M6lPQ), [（下）](http://archive.today/2024.03.23-131758/https://mp.weixin.qq.com/s/vMDT1bRvRId851VEe-CpzA)
 - [一份献给跨儿们的攻略（2024）- 跨儿说TransTalks](http://archive.today/2024.03.19-063345/https://mp.weixin.qq.com/s/e7lh1ikGUuBd68_iw5XoFw)
 - [2023年8月22日七夕节，和性别多元相关的主要微信公众号遭遇新一轮集体炸号](http://archive.today/2023.08.22-070027/https://twitter.com/Angel_involked/status/1693854541844983882), [Source](https://t.me/transacademicorg/778)
