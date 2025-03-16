@@ -40,7 +40,8 @@
 - [图片故事：直击沈阳变性人手术全过程 - 凤凰网](http://archive.today/2024.10.26-183925/https://news.ifeng.com/photo/200612/1213_24_47782.shtml)
 - [吃激素、隆胸、穿女装 粤84岁书法家欲变性 - 海峡都市报](http://archive.today/2024.10.26-183927/https://news.ifeng.com/c/7fcPpTORTiV)
 - [南方日报：关注变性人的社会生存状态 - 南方日报](http://archive.today/2024.10.26-183807/https://tech.sina.com.cn/d/2005-12-22/1728800222.shtml)
-- 
+- [劉文／跨性別運動的未來，也是女性主義的未來](https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement), [backup1](https://archive.ph/2025.02.22-110739/https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement), [backup2](https://web.archive.org/web/20250222134955/https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement)
+- [泰國——中國跨性別的應許之地（《在場》版）](https://www.frontlinefellowship.io/blog/huelgar?categoryId=438620), [backup](https://archive.ph/2025.02.22-012754/https://www.frontlinefellowship.io/blog/huelgar?categoryId=438620); [泰國──中國跨性別的應許之地 （报道者版）](https://www.twreporter.org/a/frontlinefellowship-chinese-transgenders-promised-land-thailand), [backup](http://archive.today/2024.11.12-032933/https://www.twreporter.org/a/frontlinefellowship-chinese-transgenders-promised-land-thailand)
 
 ## 社群討論
 - [当跨性别医生面临攻击:医闹者目的是什么？ - 岭南酷儿Center](http://archive.today/2024.11.29-231132/https://mp.weixin.qq.com/s/VU0vxjICZVbL7p7VSyW0sA)
@@ -61,6 +62,8 @@
 - [考完了？《残障准大学生超强攻略》看起来先~ - 我们是少数派 少数派说](http://archive.today/2024.06.08-083055/https://mp.weixin.qq.com/s/k1ikapqiAbXjIQJ_xR8ePw)
 - [2024年暑期 改证经历 X@@a823149315](http://archive.is/2024.08.08-133110/https://nitter.poast.org/a823149315/status/1821400610861969570)
 - [兄弟盟签署中国医药教育协会团标项目，聚焦特殊群体身心健康 - 跨性别兄弟盟](http://archive.today/2024.10.14-125452/https://mp.weixin.qq.com/s/CZkF6G6ywgpLrYS8zPUqsA)
+- [文章翻译｜帝国反击：一个后变性宣言 - Yuu-Pin STINGING](https://x.com/nomosdesu/status/1896228616184496512), [backup](https://archive.ph/2025.03.03-073131/https://mp.weixin.qq.com/s/gzD0mPqzyFf30ZoCLaaZJQ)
+- [学历问题这座大鼎，我们一起齐心协力冲破它吧 - 白雨霏 跨儿说TransTalks](https://mp.weixin.qq.com/s/8-idMHnAc9BcrxZR2Q7KZA), [backup](http://archive.today/2025.03.12-090853/https://mp.weixin.qq.com/s/8-idMHnAc9BcrxZR2Q7KZA)
 
 ## 資源分享
 - [【ftm】关于激素、假药、药商的一切，纯干货！ - 微信公衆號](https://web.archive.org/web/20230428200722/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog), [backup](http://archive.today/2020.10.01-073217/https://mp.weixin.qq.com/s/trVrYsaFklAO1hQ-LC-bog)
