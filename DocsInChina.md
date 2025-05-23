@@ -43,6 +43,7 @@
 - [劉文／跨性別運動的未來，也是女性主義的未來](https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement), [backup1](https://archive.ph/2025.02.22-110739/https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement), [backup2](https://web.archive.org/web/20250222134955/https://www.twreporter.org/a/opinion-feminism-and-the-future-of-transgender-rights-movement)
 - [泰國——中國跨性別的應許之地（《在場》版）](https://www.frontlinefellowship.io/blog/huelgar?categoryId=438620), [backup](https://archive.ph/2025.02.22-012754/https://www.frontlinefellowship.io/blog/huelgar?categoryId=438620); [泰國──中國跨性別的應許之地 （报道者版）](https://www.twreporter.org/a/frontlinefellowship-chinese-transgenders-promised-land-thailand), [backup](http://archive.today/2024.11.12-032933/https://www.twreporter.org/a/frontlinefellowship-chinese-transgenders-promised-land-thailand)
 - [【冰点】 性别的挣扎 本报记者 蔡平 - 中国青年报](http://archive.today/2025.04.07-132759/https://zqb.cyol.com/content/2002-07/24/content_497432.htm)
+- [被迫退学的玫瑰少年，无路可走 - 金晶@真实故事计划](https://mp.weixin.qq.com/s/u4T0VUuIKg_GYr-I-BYZZws), [backup](http://archive.today/2025.05.22-173645/https://mp.weixin.qq.com/s/u4T0VUuIKg_GYr-I-BYZZw), [backup](http://archive.today/2025.05.22-173645/https://mp.weixin.qq.com/s/u4T0VUuIKg_GYr-I-BYZZw)
 
 ## 社群討論
 - [当跨性别医生面临攻击:医闹者目的是什么？ - 岭南酷儿Center](http://archive.today/2024.11.29-231132/https://mp.weixin.qq.com/s/VU0vxjICZVbL7p7VSyW0sA)
