@@ -10,7 +10,7 @@
     - 後續，作者解釋稱：並非說跨性別者為畸形，而是一些行為。
 - [雌二醇片/雌二醇地屈孕酮片复合包装含有单方制剂雌二醇片，属于《清单》中禁止通过网络零售的品种 - 国家药监局综合司关于《药品网络销售禁止清单（第一版）》有关问题的复函](https://web.archive.org/web/20230710110339/https://www.nmpa.gov.cn/xxgk/fgwj/gzwj/gzwjyp/20230710110515153.html)
 - [中华人民共和国跨性别相关法律法规变迁 - Project Trans](https://github.com/project-trans/legal-spec)
-
+- 【文献总结，其中引用可见附录】[影视、短视频、音频对性少数群体（LGBT）的审查标准（2025完整版） - Ichinose_Asuna@Bilibili](http://archive.today/2025.10.15-092423/https://www.bilibili.com/opus/1123468650441867283), [backup](https://web.archive.org/web/20251015024057/https://www.bilibili.com/opus/1123468650441867283)
 
 ## 新聞報道
 - [钱今凡：84岁后跨性别 “人生的灿烂期才刚开始”](https://web.archive.org/web/20230419201239/http%3A%2F%2Fwww.chinadaily.com.cn%2Fdfpd%2Fshehui%2F2012-06%2F20%2Fcontent_15515350.htm)
@@ -107,3 +107,47 @@
 - [变性者的隐私 长沙:湖南文艺出版社, 1988 (日)夏树静子著;刘金鸿,丁涛译](https://zh.annas-archive.org/md5/61c613304975e4ee75d51099bf20dffb)
 
 未在 annas-archive 存档的内容已全面迁徙到网路硬盘中，请到 [Google Drive](https://drive.google.com/drive/folders/1XQr-Ucbj-zIRoPZ27qWk-egI17MaIVH2) 获取。
+
+
+## 附錄
+
+<details>
+
+<summary>「影视、短视频、音频对性少数群体（LGBT）的审查标准（2025完整版）」所引用链接备份</summary>
+
+### 「影视、短视频、音频对性少数群体（LGBT）的审查标准（2025完整版）」所引用链接备份
+
+https://web.archive.org/web/20251015024057/https://www.bilibili.com/opus/1123468650441867283
+http://archive.today/2025.10.15-092423/https://www.bilibili.com/opus/1123468650441867283
+
+其中所引用的部分連結的存檔（有一部分存檔jobs failed，或因為限制ip 屬地訪問）：
+http://archive.today/2025.10.15-092456/https://www.zgsxjjls.com/article/?type=detail&id=13332
+
+http://archive.today/2025.10.15-092514/https://falvdb.com/law/codex/acts/361566-%E7%94%B5%E5%BD%B1%E5%AE%A1%E6%9F%A5%E8%A7%84%E5%AE%9A
+https://web.archive.org/web/20251015092648/https://falvdb.com/law/codex/acts/361566-%E7%94%B5%E5%BD%B1%E5%AE%A1%E6%9F%A5%E8%A7%84%E5%AE%9A
+
+http://archive.today/2025.10.15-092521/https://special.rhky.com/mobile/mooc/tocard/509791868?courseId=222481483&name=1.%E7%94%B5%E8%A7%86%E5%89%A7%E5%AE%A1%E6%9F%A5%E6%9A%82%E8%A1%8C%E8%A7%84%E5%AE%9A%EF%BC%88%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC1%E5%8F%B7%EF%BC%89%EF%BC%88%E8%A2%AB2004%E5%B9%B4%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC40%E5%8F%B7%E5%BA%9F...&code=&btype=tushu&user_token=123&DSSTASH_LOG=&UID=&_uid=&fid=&vc3=&_d=&uf=&_industry=
+https://web.archive.org/web/20251015092658/https://special.rhky.com/mobile/mooc/tocard/509791868?courseId=222481483&name=1.%E7%94%B5%E8%A7%86%E5%89%A7%E5%AE%A1%E6%9F%A5%E6%9A%82%E8%A1%8C%E8%A7%84%E5%AE%9A%EF%BC%88%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC1%E5%8F%B7%EF%BC%89%EF%BC%88%E8%A2%AB2004%E5%B9%B4%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC40%E5%8F%B7%E5%BA%9F...&code=&btype=tushu&user_token=123&DSSTASH_LOG=&UID=&_uid=&fid=&vc3=&_d=&uf=&_industry=
+
+http://archive.today/2025.10.15-092540/https://special.rhky.com/mobile/mooc/tocard/509791946?courseId=222481483&name=9.%E7%94%B5%E8%A7%86%E5%89%A7%E5%AE%A1%E6%9F%A5%E7%AE%A1%E7%90%86%E8%A7%84%E5%AE%9A%EF%BC%88%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC40%E5%8F%B7%EF%BC%89%EF%BC%88%E8%A2%AB2010%E5%B9%B4%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC63%E5%8F%B7...&code=&btype=tushu&user_token=123&DSSTASH_LOG=&UID=&_uid=&fid=&vc3=&_d=&uf=&_industry=
+https://web.archive.org/web/20251015092539/https://special.rhky.com/mobile/mooc/tocard/509791946?courseId=222481483&name=9.%E7%94%B5%E8%A7%86%E5%89%A7%E5%AE%A1%E6%9F%A5%E7%AE%A1%E7%90%86%E8%A7%84%E5%AE%9A%EF%BC%88%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC40%E5%8F%B7%EF%BC%89%EF%BC%88%E8%A2%AB2010%E5%B9%B4%E5%9B%BD%E5%AE%B6%E5%B9%BF%E6%92%AD%E7%94%B5%E5%BD%B1%E7%94%B5%E8%A7%86%E6%80%BB%E5%B1%80%E4%BB%A4%E7%AC%AC63%E5%8F%B7...&code=&btype=tushu&user_token=123&DSSTASH_LOG=&UID=&_uid=&fid=&vc3=&_d=&uf=&_industry=
+
+[此條被標記：本篇法规已被：国家广播电影电视总局关于废止部分广播影视部门规章和规范性文件的决定（发布日期：2010年11月12日，实施日期：2010年11月12日）废止]
+http://archive.today/2025.10.15-092920/http://www.fymate.net/html/text/chl/1026/102626.html
+https://web.archive.org/web/20251015093041/http://www.fymate.net/html/text/chl/1026/102626.html
+
+http://archive.today/2025.10.15-092925/https://www.gov.cn/zhengce/2010-03/26/content_5725928.htm
+
+http://archive.today/2025.10.15-092937/https://www.ctpia.com.cn/index/sousuo/detail?id=178&isid=6&isflag=1
+https://web.archive.org/web/20251015092932/https://www.ctpia.com.cn/index/sousuo/detail?id=178&isid=6&isflag=1
+
+http://archive.today/2025.10.15-092942/http://www.xinhuanet.com/zgjx/2017-07/01/c_136409024.htm
+
+http://archive.today/2025.10.15-092942/https://www.gov.cn/gongbao/content/2020/content_5492511.htm
+
+http://archive.today/2025.10.15-092953/https://hnna.voc.com.cn/view.php?tid=1143&cid=47
+
+http://archive.today/2022.10.13-211534/http://politics.people.com.cn/n1/2021/1215/c1001-32309186.html
+
+
+</details>
