@@ -12,6 +12,10 @@
 - [中华人民共和国跨性别相关法律法规变迁 - Project Trans](https://github.com/project-trans/legal-spec)
 - 【文献总结，其中引用可见附录】[影视、短视频、音频对性少数群体（LGBT）的审查标准（2025完整版） - Ichinose_Asuna@Bilibili](http://archive.today/2025.10.15-092423/https://www.bilibili.com/opus/1123468650441867283), [backup](https://web.archive.org/web/20251015024057/https://www.bilibili.com/opus/1123468650441867283)
 
+## 研究报告
+
+- [2026 中文在线社区跨性别群体生活状况调研报告 - KiraEqual](http://archive.today/2026.08.17-081827/https://kiramyao.com/report/2026-transgender-life-survey-reader-edition), [in this repo](./files/2026%20中文在线社区跨性别群体生活状况调研报告%20_%20KiraMyao%20Equal.mhtml)
+
 ## 新聞報道
 - [钱今凡：84岁后跨性别 “人生的灿烂期才刚开始”](https://web.archive.org/web/20230419201239/http%3A%2F%2Fwww.chinadaily.com.cn%2Fdfpd%2Fshehui%2F2012-06%2F20%2Fcontent_15515350.htm)
 - [停运公告 - 北同文化AllForQueer](http://archive.today/2023.05.15-142658/https://mp.weixin.qq.com/s/5PZw5t3lqlIECS49wgmF2w), [backup](https://web.archive.org/web/20230515184551/https://mp.weixin.qq.com/s/5PZw5t3lqlIECS49wgmF2w)
